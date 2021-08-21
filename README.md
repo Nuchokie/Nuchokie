@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nuchokie
+- 👀 I’m interested in creating new webpages.
+- 🌱 I’m currently learning programing.
+- 💞️ I’m looking to collaborate on The Oden Projects.
+- 📫 Reach me at lovelyhousesilom@gmail.com
